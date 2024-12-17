@@ -1,4 +1,4 @@
-## Hi there 👋
+LudicMay Visual Effects & Animation 👋
 
 <!--
 
